@@ -2,4 +2,4 @@
 E-commerce Domain
 
 
-LINK : https://j3k.59b.myftpupload.com/
+WEBSITE LINK : https://j3k.59b.myftpupload.com/
